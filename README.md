@@ -18,9 +18,14 @@
 
 𝗽𝘆𝘁𝗵𝗼𝗻𝟯 𝗭𝗶𝗽𝗖𝗿𝗮𝗰𝗸.𝗽𝘆
 
-𝗚𝘂𝘆𝘀 𝗶𝗳 𝘆𝗼𝘂 𝗳𝗼𝘂𝗻𝗱 𝘁𝗵𝗶𝘀 𝘁𝗼𝗼𝗹 𝗵𝗲𝗹𝗽 𝘁𝗵𝗲𝗻 𝗱𝗼 𝗳𝗼𝗹𝗹𝗼𝘄 𝘂𝘀
+Now to use this tool you will be automatically redirected to our
+YouTube channel do subscribe and click on Bell icon and come back
+to Termux and you Will be able to use this tool for free
 
-𝗼𝗻 𝗚𝗶𝘁𝗛𝘂𝗯 𝗮𝗻𝗱 𝗦𝘂𝗯𝘀𝗰𝗿𝗶𝗯𝗲 𝗼𝘂𝗿 𝗬𝗼𝘂𝗧𝘂𝗯𝗲 𝗖𝗵𝗮𝗻𝗻𝗲𝗹 𝗳𝗼𝗿
+Hope & You Love the tool and for any queries or error join our Hacking
+our Channel 👉🏼 https://youtube.com/@hackers_colony_tech?si=7MbI9sm2pOPC1LP_
 
-𝗘𝘁𝗵𝗶𝗰𝗮𝗹 𝗛𝗮𝗰𝗸𝗶𝗻𝗴 𝗩𝗶𝗱𝗲𝗼𝘀👉🏼👉🏼https://youtube.com/@hackers_colony_tech?si=8EWN4f54_tPJz3En
+𝗔𝗻𝘆 𝗘𝗿𝗿𝗼𝗿 𝗥𝗲𝗮𝗰𝗵 𝘂𝘀 𝗮𝘁 👇🏼👇🏼
+https://chat.whatsapp.com/HB03qdGSK5K17wmQ5FXGiP
+
 
